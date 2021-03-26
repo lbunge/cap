@@ -1,0 +1,2 @@
+# New Senior Member Packet
+My squadron utilizes these files in a new senior member packet we give to prospective adults looking to join our unit. A typical packet will include a welcome letter from the commander, a checklist for the member's first year in CAP, a checklist to become a mission pilot, a Senior Member Plan of Action template, and a multi page pamphlet overview of CAP and the specialty tracks they could choose from.
